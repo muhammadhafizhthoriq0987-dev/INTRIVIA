@@ -9,3 +9,7 @@
 
 ## Kesan Pesan Cluster [10] Sejauh Ini
 [Untuk Cluster saya yakni Cluster 10 saya merasa bahwa cluster saya dapat dikatakan sebagai cluster yang tergolong ke dalam cluster yang bonding dan chemistry nya dapat terbentuk dalam waktu singkat dan tidak perlu waktu lama-lama bagi kami untuk bisa akrab satu sama lain. Selain itu, menurut saya cluster ini sangat asik pada saat gathering]
+
+
+## Harapan Kuliah
+[Harapan saya selama menjalani perkuliahan di FILKOM dan HMDTIF ini semoga saya mendapatkan ilmu baru yang memang sebelumnya ingin saya capai dan kuasai saat berada pada tahap perkuliahan. Saya juga berharap semoga saya mendapat pengalaman pengalaman baru pada dunia perkuliahan ini mungkin dengan mengikuti organisasi maupun voulenteer. Selain itu juga semoga saya dapat lulus tepat waktu dan dapat bekerja bahkan mungkin sebelum saya wisuda dan semoga saya dapat berteman dengan orang-orang yang suportif dan orang-orang yang baik]
